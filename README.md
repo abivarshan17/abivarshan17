@@ -1,5 +1,5 @@
 - 👋 Hi, I’m ABIVARSHAN
-- 🌱 I’m currently learning CSE
+- 🌱 I’m currently learning B.E CSE
 - 📫 How to reach me abibro553@gmail.com
 - ⚡ Fun fact: overthinker
 
